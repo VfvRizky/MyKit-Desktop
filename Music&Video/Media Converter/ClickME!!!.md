@@ -14,7 +14,6 @@
 
 
 
-
 ============================
 ### For the 🔐 Contact me on [Here](https://vfvrizky.my.id)
 ============================
