@@ -2,7 +2,7 @@
 
 ### ⭐ 한국어 - عرب - русский - 中國 ⭐
 --------------------------------
-## Click this [🥑](https://github.com/VfvRizky/MyKit-Desktop/blob/main/CodePlay/Notepad%2B(Mine).zip) to Download
+## Click this [🥑](https://drive.google.com/drive/folders/1o6jj6Df-CMW1C2hB0n9x686iqMA00yPA?usp=sharing) to Download
 --------------------------------
 </br>
 
