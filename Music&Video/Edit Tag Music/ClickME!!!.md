@@ -15,9 +15,9 @@
 ![editmusic3](https://user-images.githubusercontent.com/73746365/156143021-9953e822-85eb-4be9-8c11-672daba2a9bd.JPG)
 
 
-============================
+=========================
 ### For the 🔐 Contact me on [Here](https://vfvrizky.my.id)
-============================
+=========================
 
 --------------------------------
 ## ⚠️ All this apps not MINE ⚠️
