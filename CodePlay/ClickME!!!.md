@@ -2,7 +2,7 @@
 
 ### ⭐ theme what i used ⭐
 --------------------------------
-## Click this [📚](https://github.com/VfvRizky/MyKit-Desktop/blob/main/CodePlay/Notepad%2B(Mine).zip) to Download
+## Click this [☕](https://github.com/VfvRizky/MyKit-Desktop/blob/main/CodePlay/Notepad%2B(Mine).zip) to Download
 --------------------------------
 </br>
 
@@ -16,7 +16,7 @@
 =========================
 
 --------------------------------
-## ⚠️ All this apps not MINE ⚠️
+## ⚠️ I'm not Own of all these Apps ⚠️
 --------------------------------
 
 
