@@ -1,4 +1,4 @@
-# Edit Description & Tag of Music 📝 🎵 🔧
+# Edit Description & Tag of Music 📝 🎵
 
 --------------------------------
 ## Click this  [☕](https://github.com/VfvRizky/MyKit-Desktop/blob/main/Music%26Video/Edit%20Tag%20Music/Tag-Scanner.zip) to Download
@@ -20,5 +20,5 @@
 =========================
 
 --------------------------------
-## ⚠️ All this apps not MINE ⚠️
+## ⚠️ I'm not Own of all these Apps ⚠️
 --------------------------------
