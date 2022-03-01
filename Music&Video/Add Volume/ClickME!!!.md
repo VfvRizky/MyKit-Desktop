@@ -1,7 +1,7 @@
-# Add & Increase Volume +++ 🔉 ->  🔊  -> 📢
+# Add & Increase Volume 🔉 + 🔊 + 📢
 
 --------------------------------
-## Click this [☕](https://github.com/VfvRizky/MyKit-Desktop/blob/main/Music%26Video/Add%20Volume/Add-Volume.zip) to Download
+## Click this [🥑](https://github.com/VfvRizky/MyKit-Desktop/blob/main/Music%26Video/Add%20Volume/Add-Volume.zip) to Download
 --------------------------------
 </br>
 
@@ -18,5 +18,5 @@
 =========================
 
 --------------------------------
-## ⚠️ All this apps not MINE ⚠️
+## ⚠️ I'm not Own of all these Apps ⚠️
 --------------------------------
