@@ -1,4 +1,4 @@
-# Media Converter 🔧🎬♻️🎵🎤⚙️
+# Media Converter 🔧🎬🎵♻️
 
 
 # Click [Here](https://drive.google.com/file/d/1_EHFeiBL5DquM_zgaOv6ldeTbAkeDe24/view?usp=sharing) to Download
@@ -18,5 +18,5 @@
 =========================
 
 --------------------------------
-## ⚠️ All this apps not MINE ⚠️
+## ⚠️ I'm not Own of all these Apps ⚠️
 --------------------------------
