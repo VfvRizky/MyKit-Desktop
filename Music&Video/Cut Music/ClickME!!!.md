@@ -1,7 +1,7 @@
 # Cut Music ✂️ 🎵
 
 --------------------------------
-## Click this [☕](https://github.com/VfvRizky/MyKit-Desktop/blob/main/Music%26Video/Cut%20Music/MP3-Cutter.zip) to Download
+## Click this [🥑](https://github.com/VfvRizky/MyKit-Desktop/blob/main/Music%26Video/Cut%20Music/MP3-Cutter.zip) to Download
 --------------------------------
 </br>
 
@@ -18,5 +18,5 @@
 =========================
 
 --------------------------------
-## ⚠️ All this apps not MINE ⚠️
+## ⚠️ I'm not Own of all these Apps ⚠️
 --------------------------------
